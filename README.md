@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @thisisarealuser
+- 👀 I’m interested in g a m i n g
+- 🌱 I’m currently learning absolutely nothing
+- 💞️ I’m looking to collaborate on nothing. I have absolutely NO experience with code
+- 📫 You can reach me by discord (Yeeti6780#3200)
+- 🤓 thats it goofy, now get out.
